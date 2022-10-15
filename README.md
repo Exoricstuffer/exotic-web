@@ -1,2 +1,0 @@
-# exotic-web
-wewqasadasd
